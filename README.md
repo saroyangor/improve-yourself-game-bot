@@ -1,1 +1,1 @@
-# improve-yourself-game-bot
+# [improve-yourself-game-bot](t.me/improveYourselfGameBot)
